@@ -1,0 +1,3 @@
+# son
+merhabaaaa
+ikinci kısım
